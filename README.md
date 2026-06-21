@@ -74,7 +74,7 @@ PulseMining is a crypto-**mining** community built around one idea: getting onto
 
 No promises of riches — just the tools, the people, and a head start.
 
-### 👉 Join PulseMining: **https://discord.gg/BKFaXmZ2Az**
+### 👉 Join PulseMining: **https://discord.gg/t4kZ59SCMa**
 
 ---
 
